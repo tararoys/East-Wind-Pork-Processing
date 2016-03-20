@@ -1,6 +1,3 @@
-![](https://github.com/tararoys/East-Wind-Pork-Processing/blob/master/images/CelaningCasings10.jpeg)
-
-
 #East Wind Meat Processing:  Pork 
 by Rin, Jaime, and Taralynn
 
